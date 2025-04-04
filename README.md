@@ -9,4 +9,5 @@ I think I am very stupid and can't do anything.
 ### I just don't do anything...
 I spend all day watching [Attack On Titan](https://attackontitan.fandom.com/wiki/) or playing [Romance Club](https://romance-club.fandom.com/wiki/Romance_Club_Wiki).
 **I AM JUST USELESS**
-
+# I'm still useless, but I'm hoping to get better
+It's not like I did something in particular. But I'm trying to find a second job to cover my debts. I'm also trying to lose weight. I really need to do that. 
